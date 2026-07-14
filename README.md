@@ -1,4 +1,5 @@
 <div align="center">
+   
    $\color{#6689ed}{\text{ disc: g0j0_hater ; if you need to contact me quickly  }}$
 
 <img width="310" height="307" alt="image" src="https://github.com/user-attachments/assets/368daa09-53a7-41e9-acb9-5a989d786434" />
