@@ -1,6 +1,6 @@
 <div align="center">
 
-$\color{#6689ed}{\text{  Disc, g0j0hater   }}$ 
+$\color{#6689ed}{\text{  Disc, g0j0hater : if you need to contact me quickly!   }}$ 
 
 
 
