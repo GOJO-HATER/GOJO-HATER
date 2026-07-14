@@ -4,4 +4,4 @@
 
    $\color{#6689ed}{\text{   Idk what im doing so uuhhh :3   }}$
 
-[twitter](https://x.com/home) - [ata](https://gojo-hater.atabook.org/)
+[twitter](https://x.com/GOJO_HAT3R) - [ata](https://gojo-hater.atabook.org/)
